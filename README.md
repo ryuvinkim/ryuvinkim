@@ -6,4 +6,6 @@
 
 I’m always looking to collaborate and participate in outsourcing projects! Please reach out if you have any projects in mind.
 
+Feel free to contact me on GitHub or LinkedIn!
+
 🌅 Based in Phoenix, Arizona
